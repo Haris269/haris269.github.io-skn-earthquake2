@@ -1,0 +1,1 @@
+# haris269.github.io-skn-earthquake2
